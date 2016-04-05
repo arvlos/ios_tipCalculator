@@ -13,6 +13,6 @@ If you're just like me, feel free to use this app as well.
 
 >Email: artemvlosev@gmail.com
 
->[LinkedIn](linkedin.com/in/artemlosev)
+>[LinkedIn](https://linkedin.com/in/artemlosev)
 
->[Website](artemlosev.com)
+>[Website](http://artemlosev.com)
